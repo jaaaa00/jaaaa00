@@ -9,4 +9,4 @@ A dedicated front-end developer skilled in creating engaging user experiences th
   • Microsoft Apps
 
 ## Socials 🌐
-📩axel.ramirez1129@gmial.com
+📩axel.ramirez1129@gmail.com
